@@ -32,6 +32,8 @@ OBSERVATIONS:
 REGULATION CHARACTERISTICS:
 
 V-I & REGULATION CHARACTERISTICS:
+![WhatsApp Image 2026-03-28 at 10 58 38 AM](https://github.com/user-attachments/assets/5324feac-ce5a-44b9-8ba8-ed30b8df6020)
+![WhatsApp Image 2026-03-28 at 10 58 38 AM (1)](https://github.com/user-attachments/assets/b74f51e2-b666-47d0-aec5-725a686ce92d)
 
 PRECAUTIONS:
 
